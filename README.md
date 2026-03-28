@@ -1,16 +1,18 @@
-## Hi there 👋
+<img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/gyjo.png" align="left" style="width: 320px;">
+<p align="center">
+<h3 align="center">Seth or Reed<a href="https://rentry.co/una">+</a>  He/Him  22yrs, July 23rd</h3>
+<p align="center"><a href="https://rentry.co/mrfantastic" rel="nofollow">rentry.co/mrfantastic&ZeroWidthSpace;</a></p>
 
-<!--
-**sIowdancer/sIowdancer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p><b>whisper to interact,</b> I am usually off-tab. I am typically doing college work.<br>
+  I am almost always sitting with <a href="https://github.com/metaIIic" rel="nofollow">@metaIIic&ZeroWidthSpace;</a>. If I am, please INT with caution.<br>
+  I kin Reed Richards, Caesar Zeppeli & Johnny Joestar + others unlisted. <br>
+  I self-ship w/ Doom, Sue Storm, Joseph Joestar & Gyro Zeppeli.<br>
+  
+ 
+  I am mainly into Marvel and JJBA. Fantstic Four and Battle Tendency specfically. <br>
+I will pretty much speak to anyone, but I would prefer minors limit interaction.<br>
+DNI if you involve yourself in drama frequently and that's all you care about.
+</p>
+  <br>
+ 
+<sub>art by scrotummuncher</sub>
