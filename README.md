@@ -1,4 +1,4 @@
-<img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/gyjo.png" align="left" style="width: 320px;">
+<img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/diejoni.png" align="left" style="width: 315px;">
 <p align="center">
 <h3 align="center">Seth or Reed<a href="https://rentry.co/una">+</a>  He/Him  22yrs, July 23rd</h3>
 <p align="center"><a href="https://rentry.co/mrfantastic" rel="nofollow">rentry.co/mrfantastic&ZeroWidthSpace;</a></p>
@@ -13,6 +13,4 @@
 I will pretty much speak to anyone, but I would prefer minors limit interaction.<br>
 DNI if you involve yourself in drama frequently and that's all you care about.
 </p>
-  <br>
- 
-<sub>art by scrotummuncher</sub>
+<sub>art by huyandere</sub>
