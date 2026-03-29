@@ -1,4 +1,4 @@
-<img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/Github/JOGY.png" align="left" style="width: 305px;">
+<img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/Github/GyroJohnny.png" align="left" style="width: 305px;">
 <p align="center">
 <h3 align="center">Seth or Reed<a href="https://rentry.co/una">+</a>  He/Him  22yrs, July 23rd</h3>
 <p align="center"><a href="https://rentry.co/hotpants" rel="nofollow">rentry.co/hotpants&ZeroWidthSpace;</a></p>
