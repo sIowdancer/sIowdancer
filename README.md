@@ -13,7 +13,7 @@
 I will pretty much speak to anyone, but I would prefer minors limit interaction.<br>
 DNI if you involve yourself in drama frequently and that's all you care about.
 </p>
-Please do not force your ship interactions on me. I will just ignore you.<br>
+If I don't reply, I am AFK or I just don't feel like speaking.<br>
 I don't typically hide people unless you become a frequent problem.
 
 <br>
