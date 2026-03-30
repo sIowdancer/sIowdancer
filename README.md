@@ -1,7 +1,7 @@
 <img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/Github/GyroJohnny.png" align="left" style="width: 305px;">
 <p align="center">
 <h3 align="center">Seth or Reed<a href="https://rentry.co/una">+</a>  He/Him  22yrs, July 23rd</h3>
-<p align="center"><a href="https://rentry.co/hotpants" rel="nofollow">rentry.co/hotpants&ZeroWidthSpace;</a></p>
+<p align="center"><a href="https://rentry.co/hotpants" rel="nofollow">rentry.co/hotpants&ZeroWidthSpace;</a>​　<a href="https://rentry.co/doppio" rel="nofollow">rentry.co/doppio&ZeroWidthSpace;</a></p>
 
 <p><b>whisper to interact,</b> I am usually off-tab. I am typically doing college work.<br>
   I am almost always sitting with <a href="https://github.com/metaIIic" rel="nofollow">@metaIIic&ZeroWidthSpace;</a>. If I am, please INT with caution.<br>
