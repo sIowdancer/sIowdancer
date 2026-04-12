@@ -5,7 +5,7 @@
 
 
 <p><b>whisper to interact,</b> I am usually off-tab. I am typically doing college work.<br>
-  I am almost always sitting with <a href="https://github.com/metaIIic" rel="nofollow">@metaIIic&ZeroWidthSpace;</a>. If I am, please INT with caution.<br>
+  I am almost always sitting with <a href="https://github.com/ageofuItron" rel="nofollow">@ageofuItron&ZeroWidthSpace;</a>. If I am, please INT with caution.<br>
   I kin Reed Richards, Caesar Zeppeli & Johnny Joestar + others unlisted. <br>
   I self-ship w/ Doom, Sue Storm, Joseph Joestar & Gyro Zeppeli.<br>
   
