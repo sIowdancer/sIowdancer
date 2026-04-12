@@ -1,4 +1,4 @@
-<img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/Github/GyroJohnny.png" align="left" style="width: 305px;">
+<img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/DoomReed" align="left" style="width: 365px;">
 <p align="center">
 <h3 align="center">Seth or Reed<a href="https://rentry.co/una">+</a>  He/Him  22yrs, July 23rd</h3>
 <p align="center"><a href="https://rentry.co/hotpants" rel="nofollow">rentry.co/hotpants&ZeroWidthSpace;</a>​　<a href="https://rentry.co/doppio" rel="nofollow">rentry.co/doppio&ZeroWidthSpace;</a>　<a href="https://rentry.co/kakyoin" rel="nofollow">rentry.co/kakyoin&ZeroWidthSpace;</a></p>
@@ -18,4 +18,4 @@ If I don't reply, I am AFK or I just don't feel like speaking.<br>
 I don't typically hide people unless you become a frequent problem.
 
 <br>
-<sub>art by soijoke</sub>
+<sub>art by blincheeky</sub>
