@@ -1,4 +1,4 @@
-<img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/DoomReed" align="left" style="width: 365px;">
+<img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/DoomReed" align="left" style="width: 345px;">
 <p align="center">
 <h3 align="center">Seth or Reed<a href="https://rentry.co/una">+</a>  He/Him  22yrs, July 23rd</h3>
 <p align="center"><a href="https://rentry.co/hotpants" rel="nofollow">rentry.co/hotpants&ZeroWidthSpace;</a>​　<a href="https://rentry.co/doppio" rel="nofollow">rentry.co/doppio&ZeroWidthSpace;</a>　<a href="https://rentry.co/kakyoin" rel="nofollow">rentry.co/kakyoin&ZeroWidthSpace;</a></p>
